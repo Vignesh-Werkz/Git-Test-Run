@@ -6,9 +6,18 @@ Interests
 
 ###
 Football
+####
+I love everything about it, What else is there to say?
+
+
 
 ###
 Electronics
+####
+Ohm
+
 
 ###
 Athletics
+####
+I love Athletics. I am the biggest Olympics fan. 
